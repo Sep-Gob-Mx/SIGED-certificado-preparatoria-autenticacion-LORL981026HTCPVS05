@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LORL981026HTCPVS05
+LORL981026HTCPVS05
